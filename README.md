@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science and some new technology!
 - 🌱 I’m currently learning R for data science
 - 💞️ I’m looking to collaborate on biomatirial with machine learning …… and so on ^-^
-- 📫 How to reach me aldtim446@gmail.com
+- 📫 How to reach me interstellar51@163.com
 - 😄 Pronouns: Just enjoy the life
 - ⚡ Fun fact: Sci-fi fiction story expecter…… Hydrogel maker……
 
